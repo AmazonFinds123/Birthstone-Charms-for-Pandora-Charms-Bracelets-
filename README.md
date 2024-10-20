@@ -27,4 +27,4 @@ Made from **925 sterling silver**, the birthstone charm is durable, hypoallergen
 ### Perfect for Amazon Shoppers 🛒  
 This gorgeous charm is available on Amazon, making it easy to purchase and have it delivered straight to your door. 🏠 Don't miss out on the chance to give a meaningful, elegant gift to someone special.
 
-👉 **[[Buy Now on Amazon](https://amzn.to/3YciEHZ)](#)**
+👉 **[Buy Now on Amazon](https://amzn.to/3YciEHZ)**
